@@ -1,5 +1,4 @@
 tell me your idea  
-for  a story about a young
-    
-    
+for  a story about a youngsjdb
+
 
